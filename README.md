@@ -1,1 +1,1 @@
-# rsschool-cv
+https://SanShelk.github.io/rsschool-cv/cv
