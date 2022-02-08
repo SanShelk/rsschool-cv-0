@@ -1,1 +1,1 @@
-https://SanShelk.github.io/
+https://SanShelk.github.io/rsschool-cv/
